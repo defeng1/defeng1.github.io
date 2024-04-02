@@ -1,1 +1,1 @@
-Placeholder README to initialize repository
+For inquiries, contact: derekethanfeng1@gmail.com
